@@ -1,1 +1,1 @@
-![acetim](https://i.postimg.cc/Qd6ZKtCL/image.png)
+![acetim](https://i.postimg.cc/sfpF9Kxt/Screenshot-2026-06-29-191223.png)
